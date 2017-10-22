@@ -1,2 +1,3 @@
 # Genas-Lessons
-So thanks
+So thanks for that perfect lessons.
+also '*' - hard.
